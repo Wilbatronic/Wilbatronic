@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Wilbatronic
+- 👀 Im gay. Im on the look for a bf. Im a nerdy femboy uwu. :rainbow_flag:
+- 🌱 I’m currently learning c# and c++
