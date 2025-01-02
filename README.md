@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @Wilbatronic
-- 👀 Im gay.
-- 🌱 I’m currently learning c# and c++
+
